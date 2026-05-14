@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate OneNote for macOS integration with premium OneNote for macOS Integration | offline access + quick search. Featuring offline access and quick search, it's the best
 
 
 
